@@ -1,0 +1,5 @@
+I have cybersecurity students, lhave bbeen here with me for 6 moths and now i want them to have seroius practicals, meaninful ones, not random ones without meaning. a series like practical sng tools along and after each modul, outcomes are defined meaning if they can do module 1 or 2 r any, they should gain skils or have skill on that particular part well.
+
+How are you hgoing to pan this for m?somthing dobale well with whwt we have not just sayiung hee "go buy linx machine, go buy macbook or whwt,,,,no my gee" i have olny the vmarwe having linix inside, nothig else, nothin.
+so help me suggest...kindly let s be relistic. help e let us dicss so we make the wk clean, i caallow the modeul pratival run even a week, no probeelm still. as long as the poractiavls are actyaly doeabel and acatully helpful, real one,not silly shit umneannful fullfy shit.
+wel guided and wht it can be dne well so i go try ylsef then brug it to tjem we gude them, i have no proneb,m makimg tis hard and hidden, no, shouldbe wel guuded so  they folow each, and knowing why do tism, why not do iot tis way, why and what out mes and relation to the real wolrd cyber thing.
