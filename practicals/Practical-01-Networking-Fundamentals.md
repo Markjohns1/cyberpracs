@@ -1,7 +1,7 @@
 # Practical 1: Networking Fundamentals
 
 **Atiam College - Cyber Security & Ethical Hacking**
-**Module:** Week 3 - Networking Basics for Ethical Hacking
+**Module:** 1 of 5 — Networking Basics for Ethical Hacking
 **Duration:** 2–3 Hours
 **Difficulty:** Beginner
 

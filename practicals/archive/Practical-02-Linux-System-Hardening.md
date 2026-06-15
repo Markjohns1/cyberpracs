@@ -1,9 +1,9 @@
-# Practical 2: Linux System Hardening
+﻿# Practical 2: Linux System Hardening
 
 **Atiam College - Cyber Security & Ethical Hacking**
 **Module:** Week 4 - System Security
-**Duration:** 2–3 Hours
-**Difficulty:** Beginner–Intermediate
+**Duration:** 2ΓÇô3 Hours
+**Difficulty:** BeginnerΓÇôIntermediate
 
 ---
 
